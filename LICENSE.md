@@ -1,4 +1,4 @@
-# 
+# Intelligent pump.fun sniper bot modèles pour Mac OS | Instantané pump.fun sniper bot modèles pour PC Windows. Avec exécution rapide et support multi-chaînes — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
